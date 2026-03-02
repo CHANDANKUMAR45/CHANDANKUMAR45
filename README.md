@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Chandan Kumar
-**A passionate Software Engineer || Backend Engineer || DSA **
+**A passionate Software Engineer || Backend Engineer || DSA  **
 
 Email Me 👉 ✉️ **chandankumarnwd9060@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
